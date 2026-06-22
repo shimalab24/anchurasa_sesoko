@@ -1,1 +1,0 @@
-# anchurasa_sesoko
